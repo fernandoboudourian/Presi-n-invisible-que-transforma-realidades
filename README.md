@@ -1,1 +1,2 @@
-# Presi-n-invisible-que-transforma-realidades
+# Presión-invisible-que-transforma-realidades
+Países como Rusia, Irán y Corea del Norte han demostrado que resistir sanciones es posible. A veces adaptan su economía, otras veces refuerzan su narrativa interna. Las sanciones no son una fórmula mágica: su fuerza está en la coordinación, la duración y los incentivos que las acompañan. Impactan, sí. Pero cambiar conductas políticas requiere más que restricciones. Requiere visión.
